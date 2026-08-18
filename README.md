@@ -1,1 +1,0 @@
-# AI-ML-Internship-task-1
